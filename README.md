@@ -26,7 +26,7 @@ Bilibili：https://live.bilibili.com/3519206
 - 小红书：程序员吴彦祖
 
 **抖音电脑端直播需要粉丝1000人，现在人数远不够，求铁子们关注**
-![](https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20210425114652.png)
+![](https://cdn.jsdelivr.net/gh/itgoyo/PicGoRes@master/img/20210425115350.png)
 
 # 设备
 - Dell 4K
